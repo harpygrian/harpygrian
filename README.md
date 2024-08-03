@@ -8,4 +8,8 @@ im part of a system- usually cofronting with martyn. (@renchanting)
 
 introject, although its probably obvious of who. (last life specificially)
 
+anyone can c+h, although if im already with someone then preferably dont.
+
 ill make this look better later.. :p
+
+(by the way, PLEASE whisper crowns- more likely i'll see them, even if i dont respond.)
