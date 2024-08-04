@@ -12,4 +12,4 @@ anyone can c+h, although if im already with someone then preferably dont.
 
 ill make this look better later.. :p
 
-(by the way, PLEASE whisper crowns- more likely i'll see them, even if i dont respond.)
+(by the way, PLEASE whisper crowns- more likely i'll see them. i dont usually respond but i appreciate them and thank you to those who do.)
